@@ -1,4 +1,6 @@
-喜欢这个MOD的话请去引力圈赞助我获得OnlyFans版
+喜欢这个MOD的话请去爱发电或引力圈赞助我获得抢先体验版以及小福利
+
+https://www.afdian.com/a/muyunshang
 
 app.yinliquan.app/c/mrkunkun
 
